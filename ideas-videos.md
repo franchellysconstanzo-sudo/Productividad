@@ -11,3 +11,4 @@ Ideas que salen de comentarios reales del público. Antes de producir cualquiera
 - **Cuidado:** nada de teología de la prosperidad. No prometer que Dios devuelve más dinero por dar.
 - **Gancho tentativo:** "¿Dar? Si apenas me alcanza para comer 😅"
 - **Formato sugerido:** Short animado. Opcional: carrusel con el mismo tema.
+- **Nota:** la misma persona respondió después *"es que yo entendí mal el mensaje"*. El #17 se puede leer como "dar aunque te quedes sin nada". En el video nuevo, decir desde el gancho o la primera frase que **no** se trata de quedarse sin lo básico.
